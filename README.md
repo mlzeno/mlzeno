@@ -28,7 +28,5 @@
 
 [rentry](https://rentry.co/aIone-traveler) . [ata](https://27jay.straw.page)  .  [prns](https://pronouns.cc/@27jay) 
 
-꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
-
 </div>
 
