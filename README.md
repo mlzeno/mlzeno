@@ -8,11 +8,7 @@
 
 <div align="center">
 
-*" a darkness that does not let its victims go. "*
-
-
-
-
+![line-arose-pk2](https://github.com/user-attachments/assets/04251a51-89b1-40d7-a40f-e6a9bf2a82c6)
 
 </div>
 
