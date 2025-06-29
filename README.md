@@ -16,17 +16,19 @@
 
 
 
+<div align="center">
+
+![MHRS-Malzeno_Icon](https://github.com/user-attachments/assets/f34cf683-2450-48fa-9d2e-098f99b596c4)
+
+</div>
 
 
 
 <div align="center">
 
+[rentry](https://rentry.co/aIone-traveler) . [ata](https://27jay.straw.page)  .  [prns](https://pronouns.cc/@27jay) 
 
-
-
-
-
-![MHRS-Malzeno_Icon](https://github.com/user-attachments/assets/f34cf683-2450-48fa-9d2e-098f99b596c4)
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
 </div>
 
