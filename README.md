@@ -8,7 +8,8 @@
 
 <div align="center">
 
-![line-arose-pk2](https://github.com/user-attachments/assets/04251a51-89b1-40d7-a40f-e6a9bf2a82c6)
+![divider](https://github.com/user-attachments/assets/70b6e3fa-9193-4500-9680-08b3e6ada5b7)
+
 
 </div>
 
