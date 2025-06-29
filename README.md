@@ -1,6 +1,6 @@
 <div align="center">
 
-*: " A darkness that does not let its victims go. "*
+*" A darkness that does not let its victims go. "*
 
 
 
