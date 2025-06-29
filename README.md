@@ -1,5 +1,13 @@
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=mlzeno&color=e17388&label=THE_QURIO.)
+
+</div>
+
+
+
+<div align="center">
+
 *" a darkness that does not let its victims go. "*
 
 
