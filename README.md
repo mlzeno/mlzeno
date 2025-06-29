@@ -1,6 +1,6 @@
 <div align="center">
 
-*" elelele "*
+*" A darkness that does not let its victims go. "*
 
 </div>
 
