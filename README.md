@@ -27,7 +27,7 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/aIone-traveler) . [ata](https://27jay.straw.page)  .  [prns](https://pronouns.cc/@27jay) 
+[rentry](https://rentry.co/aIone-traveler) . [ata](https://27j.atabook.org)  .  [prns](https://pronouns.cc/@27jay) 
 
 </div>
 
